@@ -6,8 +6,6 @@ Being a remote company we sometimes need to get the team together to make some b
 
 If you thought packing was the hardest part while traveling, try managing the company travel! 🤯Which is why this document has come to life - to make things easier for You and also for the management. 
 
-The Drops travel and expense policy explains the rules for booking travel and managing expenses. This travel policy covers the rules for all business related travel: executive, employee and contractor. 
-
 The Drops travel policy helps us:
 
 - Keep track of travelers’ safety
@@ -22,3 +20,4 @@ Thank you for reading and following our policy! Please direct any questions to M
 We’ll reimburse all reasonable business expenses, after they are approved, in part or in full as the case may be BUT we want to avoid overspending or unnecessary costs. 
 For example, we prefer booking plane tickets in economy class, unless there is reason for upgraded travel. 
 We ask you to use your best judgment when traveling for company purposes. 
+
