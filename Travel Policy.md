@@ -62,9 +62,13 @@ For accommodation we have previously used Airbnb-s but this might not be the cas
 
 All whole team meals during Dropsites are covered and paid by the company (Marit). This usually covers lunches and at least 3 dinners but also breakfast in some cases, depending on the Dropsite location and program. 
 
-## Other expenses during Dropsite 💳
+## Other expenses during Dropsite 💶
 
 Other expenses during Dropsite, which may include taxi rides, optional dinners, free day programs etc. are covered by the company when prepayment is possible or when either Mark, Dani or Marit are present.
+
+## Paying with company card 💳
+
+It might happen that You get the company card and are in charge of paying for the team. In case this happens please take good care of it and get a receipt or invoice for the payment, whichever is available. Usually you are given a receipt and a bank confirmation. For the accounting it is important to have the receipt with the paid sum and info (name, address) of the restaurant etc on it. You can scan the receipt and send it to invoices@languagedrops.com email with info about the cost (e.g team lunch) in a PDF format or just find Marit and give it to her. 
 
 
 # 2. Reimbursable costs
